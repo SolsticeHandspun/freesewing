@@ -1,22 +1,22 @@
 ---
-title: "¿De qué se habla con o sin mamas?"
+title: "¿De qué se habla con o sin senos?"
 ---
 
-Some people get confused by the terms _with breasts_ and _without breasts_.
+A veces unas personas se confunden a los términos _con senos_ y _sin senos_.
 
 Utilizamos estos términos como una manera de incluir el género para preguntar si una persona tiene pechos o no.
 
 ##### Como se aplica a los cuerpos
 
-Casi todas las empresas de prendas de vestir tienen dos categorías principales para su ropa de vestir: ropa para hombres y para mujeres. Estos diseños de prendas suelen estar basados en el cuerpo ideal o medio. Meaning, for womenswear, the designer will likely make a garment for a body with breasts, narrow shoulders, a smaller waist and wide hips.
+Casi todas las empresas de prendas de vestir tienen dos categorías principales para su ropa de vestir: ropa para hombres y para mujeres. Estos diseños de prendas suelen estar basados en el cuerpo ideal o medio. Significando, para la ropa de mujeres, es sumamente probable que el diseñador hará una prenda para un cuerpo con senos, hombros estrechos, una cintura pequeña y cadera ancha.
 
-These characteristics are generally thought of as _the typical characteristics of a woman's body_. However, we believe it is best to stay away from this; no body is average and we want to build a gender-inclusive environment.
+Estas características se piensa generalmente con _las características típicas del cuerpo de mujer_. Además, creemos que es mejor no seguir esa convención; no existe un cuerpo promedio y queremos crear un entorno incluso del género.
 
-We do not want to exclude anyone and we think that _body shape ≠ gender_. That's why we use the terminology **with breasts** and **without breasts**, simply asking whether a person has breast tissue or not.
+No queremos excluir a nadie y pensamos que _forma de cuerpo ≠ género_. Por eso usamos los términos **con senos** y **sin senos**, para preguntar sólo si una persona tiene tejido de seno o no.
 
 ##### Cómo se aplica a los patrones
 
-Any user can draft any pattern on our site, as long as they provide the required measurements. Which for some patterns includes measurements that are only relevant if you have breasts.
+Cualquier usuario se puede redactar cualquier diseño, siempre que provechan los medidos requeridos. Para algunos diseños incluyen medidos que sólo son relevantes si tienes senos.
 
 ##### Cómo se aplica a la vinculación
 
